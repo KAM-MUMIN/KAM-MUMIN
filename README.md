@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mumin
+- 👀 I’m interested in Any Auto-Mobile/Mechanical/Engineering/IT/Networking works
+- 🌱 I’m currently learning...
+- 💞️ I’m looking to collaborate on any good person who really help me..
+- 📫 How to reach me... fb.com/kam.mumin instagram.com/kam.mumin whatsapp.com/+8801879959773
